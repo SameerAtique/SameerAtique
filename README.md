@@ -2,7 +2,7 @@
 - 👀 I’m interested 
 - 🌱 I’m currently doing Bachelors in Materials Engineering
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me sameeratique5@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Bananas are berries, while strawberries are not.
 
